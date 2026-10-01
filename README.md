@@ -1,0 +1,2 @@
+# EKOSISTEM-
+biotik abiotik
